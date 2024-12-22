@@ -1,4 +1,4 @@
-<h2 align="left">Hi 👋! My name is Lucy and I'm a 18, from Berlin</h2>
+<h2 align="left">Hi 👋! My name is Lucy and I'm a 18 year old transgirl, from Berlin</h2>
 
 ###
 
